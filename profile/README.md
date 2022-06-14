@@ -1,3 +1,3 @@
 # Torpedo Software
 
-Making waves in the industry through content with impact.
+Making waves in the industry by propelling new technologies.
